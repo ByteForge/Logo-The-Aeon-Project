@@ -12,7 +12,7 @@ Logo
 
 The two main ideas, "pillars" behind of the logo are:
 * A spaceship reaching far distances and journeys
-* A sword symbolyzes lots of power, yet control over
+* A sword symbolizes lots of power, yet control over
 
 
 
